@@ -1,0 +1,5 @@
+My favourite emojis are
+- 🐈‍⬛
+- 😸
+- 🍥
+- 🐌
